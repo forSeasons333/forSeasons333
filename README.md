@@ -1,4 +1,4 @@
-这里是四季Destination.
+这里是Season3
 
 金泰妍，电子乐
 
