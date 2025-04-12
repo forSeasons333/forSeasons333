@@ -1,4 +1,4 @@
-这里是Season3
+这里是GEMILUXVII
 
 金泰妍，电子乐
 
